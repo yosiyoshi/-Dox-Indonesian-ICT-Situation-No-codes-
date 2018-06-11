@@ -13,6 +13,12 @@ In Indonesia, higher education is mainly administrated by two ministries, and pr
 The distinction is easy, if the name includes “Universitas Islam Negeri(National Islam University),” it belongs to the Kemenag RI. Those which called “Universitas Negeri(National University)” belongs to the Kemenristek RI
 
 
+There are mainly three degrees of diploma in Indonesia: Sarjana(S1, Bachelor), Magister(S2, Master) and Doktor(S3, Doctor).
+
+
+The pass percentage of "Seleksi Bersama Masuk Penguruan Tinggi Negeri"(SBMPTN, National University Entrance Examination) is circa 15%. Private schools held also Entrance Examinations respectively, e.g. "Seleksi Bersama Masuk Penguruan Tinggi Muhammadiyah(SBMPTM)"
+
+
 According to:
 
 
