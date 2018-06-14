@@ -26,7 +26,7 @@ According to Bambang Satrio Lelono, the General Director for Training and Produc
 Thus, higher education in Indonesia has important meaning to educate high-qualified engineers and business officers. There are two High-Tech fields in that Indonesia is efforting:
 
 
-### Electronic Automobils
+### Electronic Autovehicles
 
 
 ### Airplanes
@@ -36,7 +36,7 @@ About Electronic Automobils according to:
 https://www.viva.co.id/otomotif/mobil/989417-mobil-listrik-buatan-ri-tak-lama-lagi-produksi-massal
 
 
-Indonesia will start domestic mass-production of national electronic automobils in 2020. 4 universities led by Indonesia University and "Badan Pengkajian dan Penerapan Teknologi (BPPT)" are 
+Indonesia will start domestic mass-production of national electronic vehicles in 2020. 4 universities led by Indonesia University and "Badan Pengkajian dan Penerapan Teknologi (BPPT)" are 
 to develop their first national electronic cars. Electronics is the key for such research. Especially Bandung Institute of Technology has researched lots of electronics in Indonesia.
 
 
