@@ -1,4 +1,4 @@
-## 2.Yogyakarta and the World in Globalization
+## 1-2.Yogyakarta and the World in Globalization
 According to the company of start-up that I visited again in Yogyakarta, there is interesting knowledge about globalization.
 
 
