@@ -15,3 +15,15 @@ https://economy.okezone.com/read/2018/02/06/470/1855336/jakarta-masuk-deretan-ko
 
 
 Indonesian expansion to Indian ICT industry is also remarkable. Especially in Bangalore, as the Indian "Silicon Valley", it's popular to put HQ in India. According to my interview, and the graph on top of article from okezone.com, TOP 10 digital business ecosystem cities are mainly from Asia. Mumbai and New Delhi from India, Beijing and Shanghai from China, then Jakarta from Indonesia.
+
+
+https://www.merdeka.com/uang/16-perusahaan-india-ramai-ramai-ingin-investasi-di-indonesia.html
+
+
+So Indo-Indonesian relation means to be a great ICT powers alliance, and according to the article from Merdeka.com, 
+
+
+"There are 16 companies of delegated specilly from India. They are from e.g. electric, chemical, pharmaceutical, petroleum and gas, machinery, agricultural, plastic and housing company," mentioned by Mr. Nengcha on Federation of Gujarat Industries (FGI) at Hotel JW Marriot, in Jakarta, February 2017.
+
+
+Infrastructure investment from India is also used in MRT Jakarta project, so they are eager for Indonesian market in a meaning. 
