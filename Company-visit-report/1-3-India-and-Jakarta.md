@@ -8,3 +8,10 @@ Historically, Indonesia has great relationship with India especially in cultural
 
 
 6-7 December, Department of telecomunication of India co-operated with 10 ASEAN member countries to discuss convergence of technology.
+
+
+https://tekno.kompas.com/read/2014/06/24/1310000/Perusahaan.IT.Indonesia.Ekspansi.ke.India
+https://economy.okezone.com/read/2018/02/06/470/1855336/jakarta-masuk-deretan-kota-digital-bangalore-juaranya
+
+
+Indonesian expansion to Indian ICT industry is also remarkable. Especially in Bangalore, as the Indian "Silicon Valley", it's popular to put HQ in India. According to my interview, and the graph on top of article from okezone.com, TOP 10 digital business ecosystem cities are mainly from Asia. Mumbai and New Delhi from India, Beijing and Shanghai from China, then Jakarta from Indonesia.
